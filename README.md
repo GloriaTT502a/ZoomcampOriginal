@@ -1,2 +1,0 @@
-# ZoomcampOriginal
-Zoomcamp Original
